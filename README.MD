@@ -10,7 +10,7 @@
 
 
 
-this is so me!!
+so meee👽👾
 # ***INT/INTERACT***
   ### friends of friends, family, kind strangers. (Feel free to INT!)
 
