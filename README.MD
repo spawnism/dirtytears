@@ -14,4 +14,4 @@
 # **WARNING**
   ### If I *block* you or *hide* you without explanation, well there is A LOT of reasons, either you made my family/friends uncomfortable, or you are problematic and cause dramas.
 
-         **(thank u for reading *bye bye!* stay safe everybody!)**
+**(thank u for reading *bye bye!* stay safe everybody!)**
