@@ -10,7 +10,7 @@
 
 
 
-so meee👽👾
+so meee👽👾 (on mobile might look weird)
 # ***INT/INTERACT***
   ### friends of friends, family, kind strangers. (Feel free to INT!)
 
