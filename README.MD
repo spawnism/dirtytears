@@ -1,6 +1,6 @@
-# **Welcome!!**
+# ***Welcome!!***
   ### This is *WHERE* you get to know about me more! (might be short)
-![Image](https://github.com/user-attachments/assets/4f7c3c34-d630-4399-8f37-bb2d53ed7338)
+![Image](https://github.com/user-attachments/assets/6406523d-a663-4481-9d81-fafbd04defa6)
          this is so me!!
 # **INT/INTERACT**
   ### friends of friends, family, kind strangers. (Feel free to INT!)
