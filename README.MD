@@ -1,5 +1,5 @@
 # ***Welcome!!***
-  ### This is *WHERE* you get to know about me more! (might be short
+  ### This is *WHERE* you get to know about me more! (might be short)
 
 
 
