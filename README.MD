@@ -13,7 +13,7 @@ so meee👽👾 (on mobile might look weird)
   ### friends of friends, family, kind strangers. (Feel free to INT!)
 
 # ***IWC/INTERACT WITH CAUTION***
-  ### dandyworld, cookie run kingdom, hazbin hotel, people who blame others.
+  ### dandyworld, cookie run kingdom, hazbin hotel, homestruck, people who blame others.
 
 # ***DNI/DO NOT INTERACT***
   ### pedo/rapist/racist/homo, **COPYCATS**, toxic people, manipulators, ppl who use others <-- all of this I don't even have to explain but perm blocked
