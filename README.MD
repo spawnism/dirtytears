@@ -25,6 +25,3 @@ so meee👽👾 (on mobile might look weird)
  ### My usual Pony Town hours are 1:00 - 5:00 UTC and 10:00 - 14:00 UTC. For those with GMT+7, that's 8:00 - 12:00 and 17:00 - 21:00."
 
 **(thank u for reading *bye bye* stay safe everybody!)**
-
-
-![Image](https://github.com/user-attachments/assets/37b4123c-5ffa-4106-8bc8-f80c1785685e)
