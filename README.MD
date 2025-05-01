@@ -4,11 +4,10 @@
 
 
 
-![Image](https://github.com/user-attachments/assets/6406523d-a663-4481-9d81-fafbd04defa6)
+![Image](https://github.com/user-attachments/assets/a09a89fb-eab9-4380-aa82-340fc857e335)
 
 
-
-so meee👽👾 (on mobile might look weird)
+meee👽👾
 # ***INT/INTERACT***
   ### friends of friends, family, kind strangers. (Feel free to INT!)
 
