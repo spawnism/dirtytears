@@ -1,6 +1,5 @@
 # ***Welcome!!***
-  ### This is *WHERE* you get to know about me more! (might be short)
-
+  ### This is *WHERE* you get to know about me more! (might be short, ill use this as my information page for now)
 
 
 ![Image](https://github.com/user-attachments/assets/a09a89fb-eab9-4380-aa82-340fc857e335)
