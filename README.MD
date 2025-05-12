@@ -6,7 +6,10 @@
 
 
 meee👽👾
-# ***INT/INTERACT***
+# ***PERSONALITY***
+**direct, honest (except if ur one of my enemies), insensitive/justonline{mostly sensitive to familyissues allthough its good for now}, rude/depends, kind/depends, talk to me more to know more!! I match energy with the person instead mostly.
+
+ # ***INT/INTERACT***
 **“friends of friends, family, kind strangers. (Feel free to INT!)”**
 
 # ***IWC/INTERACT WITH CAUTION***/myopinion
