@@ -17,6 +17,7 @@ meee👽👾
 
 # ***DNI/DO NOT INTERACT***
 **“pedo/rapist/racist/homo, **COPYCATS**, toxic people, manipulators, ppl who use others<-- all of this I don't even have to explain but perm blocked.”**
+
 # ***WARNING***
 **“If I *block* you or *hide* you without explanation, well there is A LOT of reasons, either you made my family/friends uncomfortable, or you are problematic and cause dramas.”**
 
