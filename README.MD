@@ -35,7 +35,7 @@ meee👽👾
 
 **Offline: “hiding or offline.”**
 
-# ***SLAGS***
+# ***SLANGS***
 
 **C+H✅: “Cuddle+Hug, This is** ***VERY*** **rare, so mostly I might need someone to c+h me badly,(strangers can too) it only happens when I'm feeling** ***VERY*** **upset or clingy. [allthough this will never happen.]”**
 
