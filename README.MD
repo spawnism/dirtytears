@@ -1,5 +1,5 @@
 # ***Welcome!!***
-**“This is *WHERE* you get to know about me more! (might be short, ill use this as my information page for now)”**
+### **“This is *WHERE* you get to know about me more! (might be short, ill use this as my information page for now)”**
 
 
 ![Image](https://github.com/user-attachments/assets/a09a89fb-eab9-4380-aa82-340fc857e335)
@@ -7,7 +7,7 @@
 
 meee👽👾
 # ***PERSONALITY***
-**direct, honest (except if ur one of my enemies), insensitive/justonline{mostly sensitive to familyissues allthough its good for now}, rude/depends, kind/depends, talk to me more to know more!! I match energy with the person instead mostly.
+**“direct, honest (except if ur one of my enemies), insensitive/justonline{mostly sensitive to familyissues allthough its good for now}, rude/depends, kind/depends, talk to me more to know more!! I match energy with the person instead mostly.”**
 
  # ***INT/INTERACT***
 **“friends of friends, family, kind strangers. (Feel free to INT!)”**
