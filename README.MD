@@ -21,6 +21,9 @@ meee👽👾
 # ***WARNING***
 **“If I *block* you or *hide* you without explaination, well there is A LOT of reasons, either you made my family/friends uncomfortable, or you are problematic and cause dramas.”** 
 
+# ***THINGS THAT P1SSED ME OFF***
+**“You ruining one of my really close relative lives/ormine, making someone im closed with really upset, making me upset sad mad whatever.”**
+
 # ***Timezones***
 **“My usual Pony Town hours are 1:00 - 5:00 UTC and 10:00 - 14:00 UTC. For those with GMT+7, that's 8:00 - 12:00 and 17:00 - 21:00.”**
 
