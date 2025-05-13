@@ -102,6 +102,11 @@ meee👽👾
 
 (DO NOT get inspired by this, or copy it.)
 
+***
+https://github.com/user-attachments/assets/81b4f876-c3dd-49dc-868f-1fd10016c62b
+
+me and my irllgang frr
+***
     
 
    **(thank u for reading *bye bye* stay safe everybody!)**
