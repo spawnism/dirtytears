@@ -13,7 +13,7 @@ meee👽👾
 **“friends of friends, family, kind strangers. (Feel free to INT!)”**
 
 # ***IWC/INTERACT WITH CAUTION***/myopinion
-**“dandyworld, cookie run kingdom, hazbin hotel, homestruck, forsaken, sprunki, rainbowfriends, people who blame others.”**
+**“dandyworld reason: igotban ihatethisgame andtoxicpeople, cookie run kingdom reason: overrated i miss old crk, hazbin hotel reason: dont have to explain, homestruck reason: toxic people, forsaken reason: toxic ppl, cornballs, devs soft, too much shipping pixels, i do not find it fun, y'all can hate me for this but what's fun with forsaken i played it for one time and left already, puzzles r NOT FUN to me, this sht is literally dbd🥀, sprunki reason: its not that scary and boring and people sexualize.. Like what THERE'S KIDS, rainbowfriends reason: used to like it but got boring, people who blame others. reason: ur not cool.”**
 
 # ***DNI/DO NOT INTERACT***
 **“pedo/rapist/racist/homo, **COPYCATS**, toxic people, manipulators, ppl who use others<-- all of this I don't even have to explain but perm blocked.”**
