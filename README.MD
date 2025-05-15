@@ -108,9 +108,9 @@ meee👽👾
 
 ***
 
-![Image](https://github.com/user-attachments/assets/5731abca-30f5-4026-a6ba-f765683b1a1f)
+https://github.com/user-attachments/assets/81b4f876-c3dd-49dc-868f-1fd10016c62b
 
-hi whoever this person is, reminder that that's a fictional character that doesn't exist irl, and please grow up and find a job instead of gooning over a fictional character that's a minor, respectfully thank you!
+me and my irllgang frr
 ***
     
 
