@@ -26,7 +26,7 @@ meee👽👾
 /ormine, making someone im close with upset, making me upset sad mad whatever.”**
 
 # ***Timezones***
-**“My usual Pony Town hours are 1:00 - 5:00 UTC and 10:00 - 14:00 UTC. For those with GMT+7, that's 8:00 - 12:00 and 17:00 - 21:00.”**
+**“My usual Pony Town hours are 1:00 - 5:00 UTC and 10:00 - 14:00 UTC. For those with GMT+7, that's 8:00 - 12:00 and 17:00 - 21:00.”**/takingabreak
 
 ## ***STATUS***
 
