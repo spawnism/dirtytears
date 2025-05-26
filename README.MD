@@ -9,6 +9,7 @@ Mon-Thurs: 6:00 AM - 5:30 PM or 6:30 PM (GMT+7)
 Friday: 6:00 AM - 4:00 PM (GMT+7)
 
 For those in UTC, that's:
+
 Mon-Thurs: 11:00 PM (the previous day) - 10:30 AM or 11:30 AM UTC
 
 Friday: 11:00 PM (Thursday) - 9:00 AM UTC
