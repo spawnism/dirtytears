@@ -1,6 +1,6 @@
 ![Image](https://github.com/user-attachments/assets/bd0256cc-7c88-4f8a-9860-3c0bef59d4b9)
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎  ‎[strawpage](https://cryiingchild.straw.page)  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎‎‎‎‎‎[socials](https://guns.lol/cryingchild)  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[sendanything](https://cryingchild.atabook.org)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎  ‎[strawpage](https://cryiingchild.straw.page)  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎‎‎‎‎‎[socials](https://guns.lol/cryingchild)  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[sendanything](https://cryingchild.atabook.org)
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎‎[pronouns/nicknames](https://pronouns.cc/@rachelx)
 
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
